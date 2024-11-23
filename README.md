@@ -34,11 +34,6 @@ I'm open to collaborating on:
 
 ---
 
-## 😄 Pronouns  
-He/Him  
-
----
-
 ## ⚡ Fun Fact  
 **I believe every challenge is an opportunity to learn and grow!** When I'm not coding, you'll find me exploring new photography techniques or on the cricket field.  
 
