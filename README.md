@@ -30,7 +30,6 @@ I'm open to collaborating on:
 ## 📫 How to Reach Me  
 - 📧 Email: [prudhviteja2002@gmail.com](mailto:prudhviteja2002@gmail.com)  
 - 🌐 Website: [prudviteja.netlify.app](https://prudviteja.netlify.app)  
-- 📱 Phone: +91 9182520644  
 
 ---
 
